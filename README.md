@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **kughanraj@graduate.utm.my**
 
-- ⚡ Fun fact **I like animea**
+- ⚡ Fun fact **I like anime**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
